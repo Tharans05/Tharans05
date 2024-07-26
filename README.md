@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tharanya
 - 🌱 I’m currently learning Bsc.(Hons.) Agriculture 
 - 😇 I’m looking to collaborate on my projects with companies
-- 📫 You can reach me through mail
+- 📫 contact : tharanyas60@gmail.com 
 - 😄 Pronouns: She/her
 
 <!---
